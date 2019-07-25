@@ -1,1 +1,1 @@
-Here is represented my study exercises
+Here are represented my study exercises
